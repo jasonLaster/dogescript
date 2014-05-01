@@ -9,6 +9,7 @@ loud
 trained
 
 so dogeudle
+so delUGE
 so boring as wow
 
 very dogescript is 'such messy; very doge-friendly'
